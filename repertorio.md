@@ -26,6 +26,7 @@ layout: page
 - Signore delle cime *(Bepi de Marzi)*
 - Tres rosas *(Luca Cubeddu, Alessandro Catte)*<a href="https://youtu.be/0_eEjX_dFGU"><img src="https://www.corovimercate.it/assets/img/icons8-youtube-50.png" alt="YouTube" style="width:36px;height:36px;"></a>
 - Varda che vien matina *(Bepi de Marzi)*
+- Voci di donna *(Alessandro Belloni, Ferruccio Villa)*
 
 
 <h3>Tradizionale</h3>
