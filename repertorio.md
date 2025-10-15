@@ -13,6 +13,7 @@ layout: page
 - Come un dono *(Giorgio Susana, Gianfranco Salatin)*<a href="https://youtu.be/cI-p5RQyv9Q?si=X1HEvXYl4evXvjjz"><img src="https://www.corovimercate.it/assets/img/icons8-youtube-50.png" alt="YouTube" style="width:36px;height:36px;"></a>
 - Dove *(Marco Maiero)* <a href="https://youtu.be/F6BDfuFKvGk"><img src="https://www.corovimercate.it/assets/img/icons8-youtube-50.png" alt="YouTube" style="width:36px;height:36px;"></a>
 - El Tram *(Samuele Bricalli, Alfredo Oggioni)*
+- Egoluzione *(Marco Colombo, Ferruccio Villa)*
 - Il modo tuo d’amare *(Pedro Salinas, trad. Emma Scoles, Ferruccio Villa)*
 - Improvviso *(Bepi de Marzi)*
 - Io mi addormento, e vivo *(Ferruccio Villa)* <a href="https://youtu.be/wyq35YPMo9w"><img src="https://www.corovimercate.it/assets/img/icons8-youtube-50.png" alt="YouTube" style="width:36px;height:36px;"></a>
