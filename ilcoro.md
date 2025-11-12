@@ -29,17 +29,17 @@ Significative tappe di questo percorso, oltre alle numerose esibizioni in Italia
 
 Importante per il Coro è stata l’incisione del suo primo CD dal titolo “Ai bordi del bosco” registrato “dal vivo” nella primavera del 1995 presso la Chiesa Parrocchiale di Lomagna (Lecco). Un secondo CD, “Come conchiglie di mare“, costituisce il consolidamento di un’attività e di un repertorio di successo.
 
-<h1>Il direttore</h1>
+<h1>I direttori</h1>
 
-Dal 2015 il Coro Popolare Città di Vimercate è diretto da Ferruccio Villa.
+Dal 2015 il Coro Popolare Città di Vimercate è stato diretto da Ferruccio Villa.
 
 Dal 1976 al 1982 ha compiuto studi privati con il Maestro Danilo Dusi (1928-1985): pianoforte, teoria e solfeggio, armonia. E’ autodidatta nello studio della chitarra classica, suonata con continuità sino al 1985. Ha cominciato a comporre, come autodidatta, nel 2014. Nel 2014 ha vinto il 3° premio al concorso nazionale di composizione corale Giulio Salvadori. Nel 2015 ha vinto il 2° premio (1° premio non assegnato) al concorso nazionale di composizione corale Renato della Torre. Nel 2016 ha frequentato il Seminario Europeo per giovani compositori organizzato da Feniarco in partnership con European Choral Association, la sua composizione è stata selezionata per il concerto finale. Nel 2017 ha vinto il 1° premio al concorso nazionale di composizione “Franchino Gaffurio” (Quartiano) nella sezione Ensemble vocali e gruppi solistici da camera. Dal 1979 al 1982 ha diretto il coro della Parrocchia S. Stefano in Segrate (MI). Nel 2014 ha frequentato un corso di formazione per direttore di coro organizzato dall'USCI Monza Brianza.
 
-Dal 2015 è direttore del Coro Popolare Città di Vimercate. Nel 2016 il Coro popolare città di Vimercate da lui diretto ha vinto il 1° premio nella categoria voci pari al concorso corale nazionale Città di Lainate. Nel biennio 2020-21 ha frequentato con successo il corso propedeutico per direttore di coro organizzato da Milano Choral Academy in collaborazione con USCI Lombardia.
+Dal 2015 al 2025 è stato direttore del Coro Popolare Città di Vimercate. Nel 2016 il Coro popolare città di Vimercate da lui diretto ha vinto il 1° premio nella categoria voci pari al concorso corale nazionale Città di Lainate. Nel biennio 2020-21 ha frequentato con successo il corso propedeutico per direttore di coro organizzato da Milano Choral Academy in collaborazione con USCI Lombardia.
 
-Dal 2013 al 2014 è stato cantore del Coro Popolare Città di Vimercate, che attualmente dirige. Dal 2013 al 2017 è stato cantore del ModusNovi Ensemble di Monza diretto da Gian Franco Freguglia. Laureato in ingegneria, è pensionato dal giugno 2021. È cavaliere al merito della Repubblica italiana.
+Dal 2013 al 2014 è stato cantore del Coro Popolare Città di Vimercate. Dal 2013 al 2017 è stato cantore del ModusNovi Ensemble di Monza diretto da Gian Franco Freguglia. Laureato in ingegneria, è pensionato dal giugno 2021. È cavaliere al merito della Repubblica italiana.
 
-Ulteriori informazioni sono disponibili nel sito [www.ferrucciovilla.it](http://www.ferrucciovilla.it), dal quale sono scaricabili, senza costi, le sue partiture.
+<!-- Ulteriori informazioni sono disponibili nel sito [www.ferrucciovilla.it](http://www.ferrucciovilla.it), dal quale sono scaricabili, senza costi, le sue partiture. -->
 
 <h2>Precedenti direttori:</h2>
 

@@ -10,7 +10,7 @@ Vice Presidente – **Alessandro Italo Belloni** - <vicepresidente@corovimercate
 
 Segretario - **Marco Colombo** - <segretario@corovimercate.it>
 
-Direttore - **Ferruccio Villa** - <maestro@corovimercate.it>
+<!-- Direttore - **Ferruccio Villa** - <maestro@corovimercate.it> -->
 
 ---
 
